@@ -1,0 +1,2 @@
+# Seminario-Tecnologo
+Seminario Tecnologo_Marcela_Ronald_Juan
